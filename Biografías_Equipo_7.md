@@ -1,2 +1,2 @@
 Tutora: Mané Schwarz
-Novatos:
+Novatos: Lord Kote
