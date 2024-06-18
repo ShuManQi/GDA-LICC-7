@@ -1,6 +1,7 @@
 Tutora: Mané Schwarz
 
-Novatos:- Lord Kote
+Novatos:
+- Lord Kote
 - Shu Man
 - Joacko
 - Álvaro
