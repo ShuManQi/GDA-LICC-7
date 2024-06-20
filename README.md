@@ -7,8 +7,8 @@
 - _Álvaro_
 - _Victor_
 - _Pedro_
-- _Nicolas_
-- _Adan_
+- _Nicolás_
+- _Adán_
 - _Tomás_
 - _Vicente_
 
