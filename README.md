@@ -6,7 +6,7 @@
 - _Joacko_
 - _Álvaro_ (ENTJ)
   
-  Oriundo del desierto más cálido del mundo, viene a la católica a desempeñarse como un destacado alumno (~~mentira~~), y a formar parte del mejor GDA de todos (verdad 😎), muy apasionado por la música y la computación, una mezcla entre introvertido y extrovetido, infantil pero de buen corazón, este profundo amante de los completos viene a darlo todo para que la GDA más grande de todas (la mía jeje) gane el LICCampeonateo :3
+  Oriundo del desierto más cálido del mundo, viene a la católica a desempeñarse como un destacado alumno (~~mentira~~), y a formar parte de la mejor GDA de todas (verdad 😎), muy apasionado por la música y la computación, una mezcla entre introvertido y extrovetido, infantil pero de buen corazón, este profundo amante de los completos viene a darlo todo para que la GDA más grande de todas (la mía jeje) gane el LICCampeonato :3
   
 - _Victor_
 - _Pedro_
