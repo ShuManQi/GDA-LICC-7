@@ -13,3 +13,4 @@
 - _Vicente_
 
 Biografia de GDA 0000 0111 🗣️
+Directo de la reina llega a la UC el segundo mas flaite y unico mapuche de la GDA  (despues del adan) aunque no lo parezco soy un viciado pa los videojuegos y voy a la U a puro jugar ping pong aunque no he hecho practicamente pa ganar puntos de la GDA por lo menos estoy haciendo esto :) igual quiero ir a fantasilandia(nunca he ido), agradecido con el de arriba por haberme dado la juna,sino me cago de hambre,demosle con todo equipo 7!
