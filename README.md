@@ -24,6 +24,10 @@ Desde lo mas profundo de la fosa del Barón Nashor ~mi pieza 💀~ llega Vicrazy
 - _Pedro_
 
 - _Nicolás_
+
+Soy novato y qué pasa!!?!, con mi último aliento juro que daré todo de mí para que mi GDA salga victoriosa en este LICCampeonato (Quiero ir a fantasilandia 😜)
+Me gusta el reguetón viejo, ver pelis de terror, apostar y pasarla bien con amigos y toda la cosa, pero siempre en lo legal ✋👮‍♂️. Soy una persona apasionada por la autosuperación. Me esfuerzo cada día por ser mejor y alcanzar mis sueños, y confío que con esfuerzo y determinación todo es posible. ¡A darle con todo equipo 7!
+   
 - _Adán_
 
 Desde los cerros y montañas del cajón del maipo⛰️🏞️ llega a la UC Adán, quien es un amante del deporte y se las arregla para llevar su vida de deportista y universitario dentro de lo posible📖🥊 (Si, los computines si conocen el sol). En la universidad forma parte de la mejor GDA que existe 🤠 (obviamente hablo del Equipo 7) en donde ha tenido un recibimiento grato y ha conocido a nuevas personas. Gracias a la universidad ha descubierto nuevos hobbies🏓 y comida🧁☕(La juna acarrea el 90% de mi dieta en la u). Hará lo posible para que como equipo podamos ganar el LICCampeonato (aunque ya estamos destinados a la victoria)👑
