@@ -35,7 +35,10 @@ Me gusta el reguetón viejo, ver pelis de terror, apostar y pasarla bien con ami
 Desde los cerros y montañas del cajón del maipo⛰️🏞️ llega a la UC Adán, quien es un amante del deporte y se las arregla para llevar su vida de deportista y universitario dentro de lo posible📖🥊 (Si, los computines si conocen el sol). En la universidad forma parte de la mejor GDA que existe 🤠 (obviamente hablo del Equipo 7) en donde ha tenido un recibimiento grato y ha conocido a nuevas personas. Gracias a la universidad ha descubierto nuevos hobbies🏓 y comida🧁☕(La juna acarrea el 90% de mi dieta en la u). Hará lo posible para que como equipo podamos ganar el LICCampeonato (aunque ya estamos destinados a la victoria)👑
 
 - _Tomás_
-- _Vicente_ 
+
+Directo de la reina llega a la UC el segundo más flaite (después del Adán) y único mapuche (creo) de la GDA. Aunque no lo parezco, soy un viciado pa los videojuegos y voy a la U a puro jugar ping pong 🏓. Por más que no he hecho mucho pa ganar puntos de la GDA, por lo menos estoy haciendo esto :). Igual quiero ir a fantasilandia (nunca he ido). Agradecido con él de arriba por haberme dado la juna, sino me cago de hambre. ¡Démosle con todo Equipo 7!
+
+- _Vicente_
 
 Quiero aprender a programar más que nada porque me gusta hacerlo, y espero alcanzar un nivel de comodidad suficiente para poder arreglármelas en varios de los campos de la computación.
 
