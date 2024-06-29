@@ -6,6 +6,9 @@
 - _Lord Kote_
 - _Shu Man_
 - _Joacko_
+
+Desde una galaxia muy, muy lejana ... ~~(o quizás no tanto)~~ oriundo de Constitucion de Maule ~~lamentablemente cerca de talca 😞~~ llega a esta universidad para ser parte de la mejor carrera. Le gusta tocar instrumentos, ver anime, escuchar musiquita, le gustaba jugar voleyball ~~lamentablemente la U me quitó todo mi tiempo de tener una vida personal~~, fanático de la pizza ~~Kote, ¿cómo vas a estar harta de la pizza si es GODDDD~~. Afortunadamente la Universidad lo recibe bien, logra adaptarse y hacer varios amigos facilmente, sin embargo, se tiene que enfrentar a ellos para poder ganar el LICCampeonato y llevar a su GDA a la victoria, _**VAMOS EQUIPO 7!!**_
+
 - _Álvaro_ (ENTJ)
 
 Oriundo del desierto más cálido del mundo, viene a la católica a desempeñarse como un destacado alumno (~~mentira~~), y a formar parte de la mejor GDA de todas (verdad 😎), muy apasionado por la música y la computación, una mezcla entre introvertido y extrovertido, infantil pero de buen corazón, este profundo amante de los completos viene a darlo todo para que la GDA más grande de todas (la mía jeje) gane el LICCampeonato :3
@@ -13,6 +16,7 @@ Oriundo del desierto más cálido del mundo, viene a la católica a desempeñars
 - _Víctor_
 
 Desde lo mas profundo de la fosa del Barón Nashor ~mi pieza 💀~ llega Vicrazy (Victor pa los brothers) para unirse a esta travesía llamada LICCampeonato, en donde, junto a su GDA, tendrá que sobrevivir a los retos que se le interpongan ~aparte de intro a cálculo~ para poder conseguir el ONE PIECE!! 🔥. Amante de los videojuegos ~fku riotgames~ y de la comida 🥯, este individuo dará su mejor esfuerzo para abordar este reto con la mejor actitud posible ~sin tomar en cuenta que fui el primer asesinado y además por parte de mi propia TUTORA 🤡~
+
 
 - _Pedro_
 - _Nicolás_
