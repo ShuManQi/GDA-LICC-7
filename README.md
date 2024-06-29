@@ -10,7 +10,9 @@
 - _Nicolas_
 - _Adan_
 - _Tomás_
+
+Directo de la reina llega a la UC el segundo más flaite (después del Adán) y único mapuche (creo) de la GDA. Aunque no lo parezco soy un viciado pa los videojuegos y voy a la U a puro jugar ping pong 🏓, aunque no he hecho mucho pa ganar puntos de la GDA por lo menos estoy haciendo esto :). Igual quiero ir a fantasilandia (nunca he ido), agradecido con él de arriba por haberme dado la juna, sino me cago de hambre, démosle con todo Equipo 7!
+
 - _Vicente_
 
 Biografia de GDA 0000 0111 🗣️
-Directo de la reina llega a la UC el segundo mas flaite  (despues del adan) y unico mapuche(creo)de la GDA  aunque no lo parezco soy un viciado pa los videojuegos y voy a la U a puro jugar ping pong aunque no he hecho practicamente pa ganar puntos de la GDA por lo menos estoy haciendo esto :) igual quiero ir a fantasilandia(nunca he ido), agradecido con el de arriba por haberme dado la juna,sino me cago de hambre,demosle con todo equipo 7!
