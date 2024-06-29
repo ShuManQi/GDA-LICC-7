@@ -31,6 +31,8 @@ Desde los cerros y montañas del cajón del maipo⛰️🏞️ llega a la UC Ad�
 - _Tomás_
 - _Vicente_ 
 
+Quiero aprender a programar más que nada porque me gusta hacerlo, y espero alcanzar un nivel de comodidad suficiente para poder arreglármelas en varios de los campos de la computación.
+
 <br>
 
 <ins>**Biografía de GDA 0000 0111 🗣️:**</ins> <br>
