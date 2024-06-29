@@ -20,8 +20,10 @@ Oriundo del desierto más cálido del mundo, viene a la católica a desempeñars
 
 Desde lo mas profundo de la fosa del Barón Nashor ~mi pieza 💀~ llega Vicrazy (Victor pa los brothers) para unirse a esta travesía llamada LICCampeonato, en donde, junto a su GDA, tendrá que sobrevivir a los retos que se le interpongan ~aparte de intro a cálculo~ para poder conseguir el ONE PIECE!! 🔥. Amante de los videojuegos ~fku riotgames~ y de la comida 🥯, este individuo dará su mejor esfuerzo para abordar este reto con la mejor actitud posible ~sin tomar en cuenta que fui el primer asesinado y además por parte de mi propia TUTORA 🤡~
 
-
 - _Pedro_
+
+Hola soy Pedro, vengo desde leeejos (por eso me cuesta llegar a clases). Soy un gran amante de los perros 🐶, la lectura 📖, subida de cerros, escalada 🧗, la musica en general 🎶 (Fan de Daft Punk) y el arroz chaufa 🥡 (god). Me gusta mucho la carrera y estoy agradecido por el tremendo grupo que me toco como GDA, con la best tutora (Mané). Démosle con todo equipo 7 para ganar el LICCampeonato 🏆!!
+Pd: Si llegamos a ganar el LICCampeonato, soy consciente que me fui carreado por el grupo (gracias de antemano).
 
 - _Nicolás_
 
